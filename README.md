@@ -1,4 +1,4 @@
-# Hi, I'm Amal 👋
+# Hi, I'm Eng.Amal Mohammed 👋
 
 Computer Engineering  passionate about:
 - Artificial Intelligence
